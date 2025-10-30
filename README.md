@@ -1,0 +1,3 @@
+To be honest i don't know what the hell is all this about but i can say one thing that this gonna change my life for no reason but all i can say is that i have no idea what this 
+is all about insha allah i will have something learned at the end of this i didn't know what i was gonna do all day i was wasting and being lazy and wasting my time for no reason but here i now sit in front of a computer and code insha allah this is a great change and hope this will heal me and allah gave me a motivation for doing this all day inshallah till i die i wanna be a cybersecurity engineer that's my dream.
+# odin-recipes
